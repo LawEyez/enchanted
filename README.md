@@ -1,3 +1,3 @@
 ## Enchantment Africa
 
-A photo gallery studio.
+A trip down memory lane. One of the first real projects I did.
